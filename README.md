@@ -10,4 +10,4 @@ i was just joking.
 Would you like to take tea.
 very good. this is the time to do what you want 
 and what your heart is saying.
-so without stoping you shoud do that your heat is saying.
+so without stoping you shoud do that your hart is saying.
