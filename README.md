@@ -5,4 +5,4 @@ yellow
 red
 blue
 as soon as  i will add one script on it for checking the repolist of any pc.
-teh rainbow adn the unicorn
+
